@@ -41,5 +41,7 @@ page:
 
 ---
 
-# ibeehub.github.io
-http://ibinc.github.io
+# ibinc.github.io
+
+- https://ibinc.github.io
+- https://www.ibeeinc.com
