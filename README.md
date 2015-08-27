@@ -1,1 +1,1 @@
-# website for [www.ibeeinc.com](https://www.ibeeinc.com)
+[www.ibeeinc.com](https://www.ibeeinc.com)
