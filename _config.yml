@@ -1,5 +1,7 @@
 ---
 markdown: redcarpet
+redcarpet:
+  extensions: ["smart", "tables", "no_intra_emphasis", "fenced_code_blocks", "autolink", "strikethrough", "superscript", "with_toc_data"]
 project: 蜂巢聚创
 page:
   - title_cn: 关于我们
@@ -38,8 +40,3 @@ page:
     title_en: Contact Us
     url_cn: contact_cn.html
     url_en: contact_en.html
-
----
-
-# ibeehub.github.io
-http://ibeehub.github.io
