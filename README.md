@@ -42,4 +42,4 @@ page:
 ---
 
 # ibeehub.github.io
-http://ibeehub.github.io
+http://ibinc.github.io
