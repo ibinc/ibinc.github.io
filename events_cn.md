@@ -110,7 +110,7 @@ Location: 32 Broadway, Suite 1701, New York, NY 10004
 限定15名学员，快来加入！
  ("small class, one to one conversation")
  
-###报名链接：[纽约蜂巢聚创全球企业家创业研习营 V](https://www.eventbrite.com/e/iv-tickets-18023188843)
+###报名链接：[纽约蜂巢聚创全球企业家创业研习营 V](https://www.eventbrite.com/e/v-tickets-18366579935)
 --------------------------------------------------------------------------------
 
 有疑问请联系
