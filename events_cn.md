@@ -4,14 +4,7 @@ title: 聚创动态
 ---
 纽约蜂巢聚创全球企业家创业研习营 VI
 成就梦想 蜂巢聚创
-
 想创业 来聚创
-
-Time: 10.31/2015 9:30am-22:00pm
-Location: 32 Broadway, Suite 1701, New York, NY 10004
-时间：2015年10月31日 9:30am-22:00pm
-地点：32 Broadway, Suite 1701, New York, NY 10004
-这是一个最靠谱的创业研习营
 
 蜂巢聚创创业营纽约再次开营啦！
 
