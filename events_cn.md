@@ -109,7 +109,9 @@ Location: 32 Broadway, Suite 1701, New York, NY 10004 地点：32 Broadway, Suit
 蜂巢聚创全球企业家创业研习营定价：$99.99美元
 
 ####您可以通过以下三种方式享受尊享优惠
-#####于10月18日前预定享受Early Bird预定优惠价格：$49.99
+#####于10月18日前预定享受Early Bird预定优惠价格：$49.99 
+###报名链接：[纽约蜂巢聚创全球企业家创业研习营 VI](https://www.eventbrite.com/e/vi-tickets-18906841873)
+
 #####订阅我们的公众微信号并转发本帖子截图给我们的小编（请联系微信号xiaofu_guo90/caikailun)
 #####老生推荐预订价：$49.99（请联系微信号xiaofu_guo90/caikailun)
 
