@@ -11,17 +11,17 @@ title: 蜂巢推荐
 - [【蜂巢特刊】如果创业是傲娇，那就让我们傲娇到底!](http://mp.weixin.qq.com/s?__biz=MzI2NzAzNTQ3NQ==&mid=400024369&idx=2&sn=559daeba55d4b7e2e296ef502f2bee21&scene=0&key=b410d3164f5f798e68b8d5066b74d00537b2f1875f7b43a208fa800bbadd2cf4d8fa5e7888366671552a29ead5d29d16&ascene=0&uin=NDgwNTA4NzIw&devicetype=iMac+MacBookPro11%2C1+OSX+OSX+10.10.3+build(14D131)&version=11000004&pass_ticket=RiQV9iYtt4tZXa%2FTT0A12GCQHPM0MIZuqFLLnBpxtg8V%2FOpzmNGQ2Ht6g2RBJFq9)
 
 - [【蜂巢大事记】跨境天使平台主办，蜂巢聚创协办的“AG Demo Day”智慧汽车专场路演全部项目清单揭秘!](http://mp.weixin.qq.com/s?__biz=MzI2NzAzNTQ3NQ==&mid=210611058&idx=1&sn=cfb256918149c23cb468693c09ea8b5f&scene=1&srcid=1023c2o43FIS8W9WGie8MyIH&key=b410d3164f5f798ef40264957ccc6ce07f72f3972ac7e111b9fb1d4b9247036db14aa5b59cc9a5aa7433aafdf31cdb06&ascene=0&uin=NDgwNTA4NzIw&devicetype=iMac+MacBookPro11%2C1+OSX+OSX+10.10.3+build(14D131)&version=11000004&pass_ticket=RiQV9iYtt4tZXa%2FTT0A12GCQHPM0MIZuqFLLnBpxtg8V%2FOpzmNGQ2Ht6g2RBJFq9)
-- 
+
 - [【蜂巢独家】飞马旅创始人袁岳做客纽约蜂巢聚创, 架起中美创业服务交流的桥梁](http://mp.weixin.qq.com/s?__biz=MzI2NzAzNTQ3NQ==&mid=210565956&idx=2&sn=9ff78bc823900a1e4822894d33698208&scene=1&srcid=1023w7Hng8Ayfk6ARfjR0hCA&key=b410d3164f5f798e7d01a5089bca235429428bfe834f9e6083de7152a81cbcc8b7af847e5c588f02b4b8a342469e0bcf&ascene=0&uin=NDgwNTA4NzIw&devicetype=iMac+MacBookPro11%2C1+OSX+OSX+10.10.3+build(14D131)&version=11000004&pass_ticket=RiQV9iYtt4tZXa%2FTT0A12GCQHPM0MIZuqFLLnBpxtg8V%2FOpzmNGQ2Ht6g2RBJFq9)
-- 
+
 - [【蜂巢集训】「蜂巢聚创」第五期训练营现场图集](http://mp.weixin.qq.com/s?__biz=MzI2NzAzNTQ3NQ==&mid=210433152&idx=2&sn=1124f6f4c505ea8efb89ec3d29925b11&scene=1&srcid=1023FzzYPlwwC9VwEDEQBEU6&key=b410d3164f5f798e3ca8e17b6335896d0efd0b627b22c6a38bd4df16a8c6001f85e9a86f5f8b298c2e51e341da9d95e3&ascene=0&uin=NDgwNTA4NzIw&devicetype=iMac+MacBookPro11%2C1+OSX+OSX+10.10.3+build(14D131)&version=11000004&pass_ticket=RiQV9iYtt4tZXa%2FTT0A12GCQHPM0MIZuqFLLnBpxtg8V%2FOpzmNGQ2Ht6g2RBJFq9)
-- 
+
 - [【蜂巢定制】高端企业家研修班第一期圆满结业---江苏省企业家培训团](http://mp.weixin.qq.com/s?__biz=MzI2NzAzNTQ3NQ==&mid=210242250&idx=2&sn=dc813040d1db0bd84a2c83a3fc5c4e9d&scene=1&srcid=1023aYPP70LRdFSeXqmCyCH6&key=b410d3164f5f798ebbaa2505727d3ec181b78125d30439c12ccd9bbbb2db81b2726c72bfffe4a57b942a5ba1705708f5&ascene=0&uin=NDgwNTA4NzIw&devicetype=iMac+MacBookPro11%2C1+OSX+OSX+10.10.3+build(14D131)&version=11000004&pass_ticket=RiQV9iYtt4tZXa%2FTT0A12GCQHPM0MIZuqFLLnBpxtg8V%2FOpzmNGQ2Ht6g2RBJFq9)
 
 - [【蜂巢独家】「蜂巢聚创」特邀————99号餐厅创办人林里举：创业要拳拳到肉](http://mp.weixin.qq.com/s?__biz=MzI2NzAzNTQ3NQ==&mid=210176858&idx=3&sn=7d24891c1b1c3d6647126831f293d17a&scene=1&srcid=10232zXoZwqaVXhkdb37lb34&key=b410d3164f5f798e737ec4ba7b6ef0a5f695e5ac32c9f063bc8a36b05c09d0ac443ffe15e7916264371727752876dfa4&ascene=0&uin=NDgwNTA4NzIw&devicetype=iMac+MacBookPro11%2C1+OSX+OSX+10.10.3+build(14D131)&version=11000004&pass_ticket=RiQV9iYtt4tZXa%2FTT0A12GCQHPM0MIZuqFLLnBpxtg8V%2FOpzmNGQ2Ht6g2RBJFq9)
 
 - [【蜂巢独家】「蜂巢聚创」特邀————松禾资本创始合伙人罗飞：投资看好“燕型团队”](http://mp.weixin.qq.com/s?__biz=MzI2NzAzNTQ3NQ==&mid=210176858&idx=2&sn=d5f000e336c5d0d635bc2ab9929dd62f&scene=1&srcid=1023U02m1qLAeML5SVxZ5xHg&key=b410d3164f5f798e7b089ec0ccf7b9638772d40071a23b1d38e126a3243ba9e4a4c49cd3ce9155a701a56dd0e9721034&ascene=0&uin=NDgwNTA4NzIw&devicetype=iMac+MacBookPro11%2C1+OSX+OSX+10.10.3+build(14D131)&version=11000004&pass_ticket=RiQV9iYtt4tZXa%2FTT0A12GCQHPM0MIZuqFLLnBpxtg8V%2FOpzmNGQ2Ht6g2RBJFq9)
-- 
+
 - [【蜂巢大事记】蜂巢聚创联合主办的第五届亚美节完美落幕](http://mp.weixin.qq.com/s?__biz=MzI2NzAzNTQ3NQ==&mid=210176858&idx=4&sn=e21c0e9d73987744cca997618db73b30&scene=1&srcid=1023PDmpr5ntbFLAr5vAk6zR&key=b410d3164f5f798e54b173e008b03c96a6f16ec59a44d0732642047aeb92144c3c1bc2b10d083dfe68d59b918137731a&ascene=0&uin=NDgwNTA4NzIw&devicetype=iMac+MacBookPro11%2C1+OSX+OSX+10.10.3+build(14D131)&version=11000004&pass_ticket=RiQV9iYtt4tZXa%2FTT0A12GCQHPM0MIZuqFLLnBpxtg8V%2FOpzmNGQ2Ht6g2RBJFq9)
 
 - [【蜂巢独家】「蜂巢聚创导师说」付春-绽放的创业花](http://mp.weixin.qq.com/s?__biz=MzI2NzAzNTQ3NQ==&mid=210153096&idx=2&sn=4ae0d12185aaa5cbb6292d58ba70d2ab&scene=1&srcid=1023UNnqH6TglkYlY7qJBkOL&key=b410d3164f5f798ec02c599d7529452278a7cd42dab0ad8b5d65519102fe35a02328b1f3816caf1a9a0c16bcbb3cdc8c&ascene=0&uin=NDgwNTA4NzIw&devicetype=iMac+MacBookPro11%2C1+OSX+OSX+10.10.3+build(14D131)&version=11000004&pass_ticket=RiQV9iYtt4tZXa%2FTT0A12GCQHPM0MIZuqFLLnBpxtg8V%2FOpzmNGQ2Ht6g2RBJFq9)
