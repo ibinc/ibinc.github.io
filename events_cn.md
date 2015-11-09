@@ -2,6 +2,39 @@
 layout: cn
 title: 聚创动态
 ---
+
+# 免费现场对话FreeS 李丰&林中华：凝聚纽约的中国创业力量
+
+2015年4月17日，李丰先生曾于曼哈顿与诸位美东精英共同见证了蜂巢聚创的成立。而半年后的今天，蜂巢聚创已经走出襁褓，成长为扎根纽约社区及孵化团队遍布美东的孵化器，被新华社称赞为”最接地气“的创业孵化器。蜂巢今日的成就因您的见证而更加辉煌！半年后丰帅再巡纽约，会带来什么样的惊喜？11月19日，FreeS的两位创始合伙人李丰和林中华（Ben），将携手美东华人首家孵化器机构蜂巢聚创面对面为您答疑解惑。欢迎参加到此次活动中，与蜂巢一起直面远道而来的演讲嘉宾。
+
+
+关于峰瑞资本 (FreeS Fund)
+峰瑞资本(FreeS Fund)是一家由著名投资人李丰、林中华等人合伙成立的早期基金。峰瑞资本立志做“创业者的第一轮机构投资者”。峰瑞资本的英文名是“FreeS”，意为：Free Service，Free Style，Free Startup，and Free Spirit。
+身为国内最专业的早期VC，FreeS希望通过颠覆性的机制，致力于改变VC行业的现有规则。我们会调动所有可能的资金、技术和资源，投资优秀创业公司并帮助他们成长为具有长期社会和商业价值的伟大企业。自 FreeS 诞生的第一天起，我们就将投资视野放大到中美两地：从之前已是独角兽级别的Uber，Evernote，Trulia，Prosper，到Ripple Labs，都是FreeS在北美耕耘的结果。
+
+
+免费活动详情
+时间：2015年11月19日2:00PM-5:00PM
+地点：TBD 待定
+报名链接：[免费现场对话FreeS 李丰&林中华：凝聚纽约的中国创业力量](https://www.eventbrite.com/e/frees-tickets-19460138799)
+
+李丰 
+峰瑞资本创始合伙人
+李丰侧重于对教育消费领域及TMT、高科技等相关领域的投资，重点关注电子商务、互联网金融、在线教育、年轻人生活方式、O2O等方面。
+在IDG资本担任合伙人期间，他主导投资了宜信、猪八戒、Prosper、三只松鼠、铜板街、嘀嗒拼车、Bilibili、Coinbase、轻轻家教、挖财、河狸家、一起唱、网利金融、友道财富、英语流利说、同盾科技、Ripple Labs、闪银、江小白、韩都衣舍、百分点、百融等⼀系列优秀项目。其中猪八戒、宜信、Prosper当前估值已超过10亿美金，猪八戒和宜信回报倍数已达30倍，三只松鼠、一起唱、铜板街、网利金融等种子期投资的项目回报都在50倍以上。
+李丰先后获得北京大学化学理学学士学位与美国罗彻斯特大学（University ofRochester）化学理学硕士学位。
+
+林中华（Ben） 
+峰瑞资本创始合伙人
+林中华，前IDG 资本合伙人。侧重于平台性企业、移动、企业软件等领域的投资。在IDG 任职期间，林中华主要负责IDG 在硅谷的投资和与各大硅谷风投机构的深入合作。在IDG 负责的硅谷项目里，在同一轮合投的硅谷知名风投机构包括Greylock Ventures，Google Ventures， First Round Capital，Index Ventures，Innovation Endeavors（谷歌前CEO）等。加入IDG 资本前，有过超过8 年的早期投资经验并参与了超过100 家初创企业的投资，包括Trulia, Stubhub, Invite Media, Flatiron Health, JoorAccess 等。
+他最早曾在高盛任职。林中华拥有宾夕法尼亚大学沃顿商学院经济学学士学位。
+
+本次活动感谢北京大学大纽约地区校友会及纽约大学的倾情支持。
+
+了解更多详细信息可点击
+[免费现场对话FreeS 李丰&林中华：凝聚纽约的中国创业力量](http://mp.weixin.qq.com/s?__biz=MzI2NzAzNTQ3NQ==&mid=400470789&idx=1&sn=8a0bbe1ac26f5d9774fc826ca94f68df&scene=1&srcid=1108Ow4CEWIU8SFGxgQalOl7&key=d4b25ade3662d643a5c36a35171179f295b338251dcda4c53bf7c38e2f793bcd669356af050168f498a717e1e2f8125d&ascene=0&uin=NDgwNTA4NzIw&devicetype=iMac+MacBookPro11%2C1+OSX+OSX+10.10.3+build(14D131)&version=11000004&pass_ticket=EdKvxjT0qespNLfFzjrTs5zGigz48xO1G1YELfU7cas1eMCzvWRlHDy68INgxm5R）
+
+
 # 纽约蜂巢聚创全球企业家创业研习营 VI
 
 1》如果您能看到这篇文章，说明您已经和蜂巢有了难解的缘分，那这篇文章肯定会对您有所帮助；
