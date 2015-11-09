@@ -32,7 +32,7 @@ title: 聚创动态
 本次活动感谢北京大学大纽约地区校友会及纽约大学的倾情支持。
 
 了解更多详细信息可点击
-[免费现场对话FreeS 李丰&林中华：凝聚纽约的中国创业力量](http://mp.weixin.qq.com/s?__biz=MzI2NzAzNTQ3NQ==&mid=400470789&idx=1&sn=8a0bbe1ac26f5d9774fc826ca94f68df&scene=1&srcid=1108Ow4CEWIU8SFGxgQalOl7&key=d4b25ade3662d643a5c36a35171179f295b338251dcda4c53bf7c38e2f793bcd669356af050168f498a717e1e2f8125d&ascene=0&uin=NDgwNTA4NzIw&devicetype=iMac+MacBookPro11%2C1+OSX+OSX+10.10.3+build(14D131)&version=11000004&pass_ticket=EdKvxjT0qespNLfFzjrTs5zGigz48xO1G1YELfU7cas1eMCzvWRlHDy68INgxm5R）
+[免费现场对话FreeS 李丰&林中华：凝聚纽约的中国创业力量](http://mp.weixin.qq.com/s?__biz=MzI2NzAzNTQ3NQ==&mid=400470789&idx=1&sn=8a0bbe1ac26f5d9774fc826ca94f68df&scene=1&srcid=1108Ow4CEWIU8SFGxgQalOl7&key=d4b25ade3662d643a5c36a35171179f295b338251dcda4c53bf7c38e2f793bcd669356af050168f498a717e1e2f8125d&ascene=0&uin=NDgwNTA4NzIw&devicetype=iMac+MacBookPro11%2C1+OSX+OSX+10.10.3+build(14D131)&version=11000004&pass_ticket=EdKvxjT0qespNLfFzjrTs5zGigz48xO1G1YELfU7cas1eMCzvWRlHDy68INgxm5R)
 
 
 # 纽约蜂巢聚创全球企业家创业研习营 VI
