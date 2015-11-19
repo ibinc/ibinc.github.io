@@ -25,7 +25,8 @@ Attention！！！！
 
 免费活动详情
 时间：2015年11月19日15:00PM-17:00PM
-地点：TBD 待定
+地点：32 Broadway, Suite 1701
+      New York, NY 10004
 报名链接：[免费现场对话FreeS 李丰&林中华：凝聚纽约的中国创业力量](https://www.eventbrite.com/e/frees-tickets-19460138799)
 
 李丰 
